@@ -1,1 +1,3 @@
 # Biographie von Frederick Douglas Patterson
+Er war der erste bekannte afroamerikanische Unternehmer für das 1915 in Ohio gebaute Greenfield-Patterson-Automobil und ein direkter Konkurrent von Henry Fords Modell T. Ihr Vater war ein Ex-Sklave, der kurz vor dem amerikanischen Bürgerkrieg aus Greenfield, Ohio, Virginia, geflohen war.
+Anschließend wandelte er sein Geschäft in die Greenfield Bus Body Company um.
