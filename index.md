@@ -8,3 +8,14 @@ Anschließend wandelte er sein Geschäft in die Greenfield Bus Body Company um.
 * Er war ehrgeizig
 * Er war der erste Afroamerikaner, der in der Juniorenmannschaft von "Ohio State Buckeyes" (1891) Fußball spielte.
 * Er war der erste Afroamerikaner, der ein Autoherstellungsunternehmen besaß und betrieb
+
+
+
+
+Wie Frederick Douglas Patterson sagte:
+> Im Jahr 1902 gab es ein Auto für 65.000 Menschen
+> und im Jahr 1909 gab es ein Fahrzeug pro 800 Menschen
+> und mit solchen Zahlen ... Ich glaube,
+> es ist Zeit für uns, einen pferdelosen Patterson-Wagen zu bauen.
+
+Original Zitat auf englisch finden Sie hier: [http://www.coachbuilt.com/bui/p/patterson/patterson.htm)
