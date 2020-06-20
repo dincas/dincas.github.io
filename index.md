@@ -19,3 +19,6 @@ Wie Frederick Douglas Patterson sagte:
 > es ist Zeit für uns, einen pferdelosen Patterson-Wagen zu bauen.
 
 Original Zitat auf englisch finden Sie hier: [http://www.coachbuilt.com/bui/p/patterson/patterson.htm)
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/The_C.R._Patterson_%26_Sons_Company_Patterson-Greenfield_Automobile.png/220px-The_C.R._Patterson_%26_Sons_Company_Patterson-Greenfield_Automobile.png"/>
